@@ -1,1 +1,0 @@
-# UgurEgemenKAYA_Homework
